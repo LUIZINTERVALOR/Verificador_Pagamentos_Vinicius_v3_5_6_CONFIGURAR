@@ -1,0 +1,2 @@
+# Verificador_Pagamentos_Vinicius_v3_5_6_CONFIGURAR
+Verificador_Pagamentos_Vinicius_v3_5_6_CONFIGURAR
